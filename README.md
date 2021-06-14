@@ -1,5 +1,5 @@
 # Some texture packs me and my friends made
-Feel free to make changes on them.
+Feel free to make changes on them. I will be uploading more in the future.
 
 
 # Self Promos:
